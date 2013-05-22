@@ -1,1 +1,1 @@
-A collection of essays written for writing classes or amusement.
+The WRIT140 class is a core writing requirement class at USC, taken in conjunction with a Social Issues course. I took it with Black Social Movements, resulting in essays that may present similar themes in my readings. These essays have been through drafts and help through my writing professor, Alex Wescott, to reach their current state.
